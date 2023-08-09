@@ -2,7 +2,7 @@
 
 
 ### ABOUT ME 
-I like programming is my passion i want to contribute to change world and my community (AFRICA) .
+Just coding !.
 
 ### SKILLS
 
